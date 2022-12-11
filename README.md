@@ -1,1 +1,1 @@
-# rsschool-cv
+https://shamiltat.github.io/rsschool-cv/
